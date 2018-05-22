@@ -14,6 +14,8 @@ Tout fonctionne sauf le bouton Clear.. Nous n'avons pas réussi à créer la fon
 Je vous invite à profiter de la douceur du brésil et d'écouter un grand Jorge Ben pour la correction :
 https://www.youtube.com/watch?v=5ger8PgN-Os
 
+Et n'hésitez pas à déguster une petite caïpirinha au réveil c'est le meilleur moyen de se réveiller !
+
 Profitez bien chers correcteurs !
 
 Muito obrigado
